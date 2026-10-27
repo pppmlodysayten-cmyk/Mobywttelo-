@@ -1,2 +1,0 @@
-# Mobywttelo-
-Zupa
